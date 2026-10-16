@@ -4,7 +4,7 @@
 
 **Building the Future of Smart Restaurant Operations**
 
-[Visit Website](https://chasha.ir)
+[Visit Website](https://chaasha.ir)
 
 </div>
 
